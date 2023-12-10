@@ -1,1 +1,1 @@
-# znad-uss-2023
+# zmad-uss-2023
